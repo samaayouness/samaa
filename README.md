@@ -1,2 +1,0 @@
-# samaa
-Tous
